@@ -1,2 +1,0 @@
-# Bai-Giang
-chao
